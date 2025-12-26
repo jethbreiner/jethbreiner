@@ -46,7 +46,7 @@ Soy **Jeth Breiner Pucllas Ore**
 
 ## 📩 Contacto
 
-* **Email**: [a20216773@pucp.edu.pe](mailto:a20216773@pucp.edu.pe)
+* **Email**: [a20216773@pucp.edu.pe](mailto:jeth.pucllas@pucp.edu.pe)
 * **LinkedIn**: [Jeth Breiner](https://www.linkedin.com/in/jeth-breiner-pucllas-ore)
 
 ---
